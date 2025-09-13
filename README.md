@@ -63,6 +63,10 @@ https://www.linkedin.com/in/sarah-shaikh-07a3b3289/ <br>
 Aspiring AI & Software Developer | Passionate about Innovation, Problem Solving & Emerging Tech <br>
 https://www.linkedin.com/in/dharmika-gajera-47b572323/
 
+**Krisha Patel** <br>
+Aspiring Data Analyst  | Bridging Data and Strategy for Real-World Impacts <br>
+https://www.linkedin.com/in/krisha-patel-82694b28a/ <br>
+
 
 
 
